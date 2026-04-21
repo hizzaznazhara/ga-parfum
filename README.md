@@ -1,0 +1,1 @@
+semua codingan milik allah
